@@ -3,7 +3,7 @@
 
 
 
-️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 18, it/she agender femme lesbian
+️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 17, it/she agender femme lesbian
 
 ️️‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎  ‎ did system, current pony ≠ front
 
